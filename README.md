@@ -7,7 +7,7 @@
 ˗͡˗˗˗͡˗˗˗͡˗˗˗͡˗˗˗͡˗˗꒰  ꒱ ˗͡˗˗˗͡˗˗˗͡˗˗˗͡˗˗˗͡˗˗
          ⪩⪨
   ╭◜◝ ͡  ◜◝ ╮ 𝑀𝑒𝓁𝑜𝒹𝓎 !!
- ໒Ꮚ𓏼 ◡⩊◡𓏼Ꮚ９ [Strawpage](https://melody-3.straw.page)  / text
+ ໒Ꮚ𓏼 ◡⩊◡𓏼Ꮚ９ [Strawpage](https://melody-3.straw.page)  / [Rentry](https://rentry.co/welcomestarshines)
    ꒰    ꜆ 🤍꜀    ꒱ xxxxx
 ˗͡˗˗˗͡˗˗˗͡˗˗˗͡˗˗˗͡˗˗˗͡˗˗˗͡˗˗˗͡˗˗˗͡˗˗˗͡˗˗˗͡˗˗˗͡˗˗
 
